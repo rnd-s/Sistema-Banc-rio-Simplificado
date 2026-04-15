@@ -1,1 +1,0 @@
-# Sistema-Banc-rio-Simplificado
